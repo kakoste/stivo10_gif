@@ -1,0 +1,1 @@
+# stivo10_gif
